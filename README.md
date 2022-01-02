@@ -5,3 +5,5 @@ https://medium.com/dfrlab/trolltracker-venezuelan-government-linked-influence-ca
 https://medium.com/dfrlab/venezuelan-pro-regime-accounts-publish-personal-data-of-phishing-victims-1b41ffc256bd
 
 https://medium.com/dfrlab/influenceforsale-venezuelas-twitter-propaganda-mill-cd20ee4b33d8
+
+https://www.securityweek.com/facebook-twitter-take-down-more-state-linked-accounts
