@@ -7,3 +7,5 @@ https://medium.com/dfrlab/venezuelan-pro-regime-accounts-publish-personal-data-o
 https://medium.com/dfrlab/influenceforsale-venezuelas-twitter-propaganda-mill-cd20ee4b33d8
 
 https://www.securityweek.com/facebook-twitter-take-down-more-state-linked-accounts
+
+https://therecord.media/iran-venezuela-accused-of-coordinating-influence-campaign-to-free-colombian-businessman-report/
